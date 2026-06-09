@@ -1,4 +1,4 @@
-
+jujutsu shenanigans instant Script offers the most advanced jujutsu shenanigans Script, with infinite resources and auto-farm. Perfect for dominating
 
 
 
